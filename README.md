@@ -1,0 +1,2 @@
+# salom-dunyo
+chiroyli qilish
